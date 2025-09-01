@@ -1,2 +1,4 @@
 # INSTAGRAMMM
-LINK NYA DISINI
+
+
+👉 [Klik disini untuk buka link saya](https://ldrjfjbd.frqzjc.biz.id)

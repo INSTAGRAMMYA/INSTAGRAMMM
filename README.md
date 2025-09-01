@@ -1,4 +1,4 @@
 # CHAT AKU DI WA YA
 
 
-👉 [WA? DI BAWAH JANGAN DI SAHRE](https://ldrjfjbd.frqzjc.biz.id)
+👉 [WA? DI BAWAH JANGAN DI BAGIKAN](https://ldrjfjbd.frqzjc.biz.id)

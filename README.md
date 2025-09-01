@@ -1,4 +1,4 @@
-# INSTAGRAMMM
+# CHAT AKU DI WA YA
 
 
-👉 [Klik disini untuk buka link saya](https://ldrjfjbd.frqzjc.biz.id)
+👉 [WA? DI BAWAH JANGAN DI SAHRE](https://ldrjfjbd.frqzjc.biz.id)
